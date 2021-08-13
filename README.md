@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @jonoroboto
+- 👀 I’m the founder @robotostudio
+- 📫 Get in touch hello@roboto.studio
